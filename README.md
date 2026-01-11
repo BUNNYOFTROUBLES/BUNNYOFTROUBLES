@@ -1,5 +1,4 @@
 
-![IMG_9686](https://github.com/user-attachments/assets/f2386389-fdcc-4824-b8ea-f19d60afa175)
 
 <img width="400" height="31" alt="IMG_9680" src="https://github.com/user-attachments/assets/80d7fbf1-207b-4f4a-a537-6b947a43b77e" />
 
@@ -9,4 +8,3 @@
 <img width="400" height="31" alt="IMG_9680" src="https://github.com/user-attachments/assets/80d7fbf1-207b-4f4a-a537-6b947a43b77e" />
 
 
-![IMG_9686](https://github.com/user-attachments/assets/f2386389-fdcc-4824-b8ea-f19d60afa175)
